@@ -5,3 +5,5 @@
 ## a codeing language for beginners
 
 # and check out my github [polu25_github](https://github.com/polu25) and stencylxd's github [stencylxd_github](https://github.com/stencylxd)
+![](56494389.png?raw=true)
+![](60293115.jpeg?raw=true)
